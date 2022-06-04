@@ -31,4 +31,4 @@ Detail-oriented, organized, good team player, highly motivated. I have a great d
 >[LinkedIn ](https://www.linkedin.com/in/katerinarybak/)  
 >[E-mail](rybakekaterina79@gmail.com)  
 >[Discord](@Katsiaryna3)  
-> +375(29)2226276
+>Phone +375(29)2226276
