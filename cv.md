@@ -19,16 +19,16 @@ Detail-oriented, organized, good team player, highly motivated. I have a great d
 -  SQL, Postman, Soap UI
 
 #### EXPIRIENCE
-- 2021-present LLC "Cotvec"|QA Engineer
-- 2015-2021 JSC "Belinvestbank"|Leading specialist
+- 2021-present LLC "Cotvec" QA Engineer
+- 2015-2021 JSC "Belinvestbank" Leading specialist
 
 #### EDUCATION
 - 2021 Author’s online course «Software testing»
 - 2019 «Polyglot», Foreign languages school
-- 2015-2019 BSEU| Taxes and taxation
+- 2015-2019 BSEU Taxes and taxation
 
 #### CONTACTS
->[LinkedIn ](https://www.linkedin.com/in/katerinarybak/)
->[E-mail](rybakekaterina79@gmail.com)
->[Discord](@Katsiaryna3)
+>[LinkedIn ](https://www.linkedin.com/in/katerinarybak/)  
+>[E-mail](rybakekaterina79@gmail.com)  
+>[Discord](@Katsiaryna3)  
 > +375(29)2226276
